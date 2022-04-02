@@ -1,10 +1,14 @@
-**ALI RAZA**![](RackMultipart20220402-4-1v851pv_html_4091c7ffc11cbd20.jpg)
+<p align="center">
+  **ALI RAZA**
 
 +92-305-7381431 • [alirazamumtaz@icloud.com](mailto:alirazamumtaz@icloud.com)
 
 • [www.](http://www.linkedin.com/in/alirazamumtaz)[linkedin.com/in/alirazamumtaz](http://www.linkedin.com/in/alirazamumtaz) • Age: 20
+  <img src="https://ibb.co/9YGyNNK">
+</p>
 
 Job Specifications
+---
 
 - **Job Title** : iOS Developer
 - **Position:** Entry Level, Internee
@@ -103,7 +107,7 @@ _Event Organizer : April 2021 - March 2022_
 _(Other volunteer activities are listed on my LinkedIn Profile.__You can visit_ [_my profile_](https://www.linkedin.com/in/alirazamumtaz/) _to check other activities.)_
 
 Honors and Awards
-
+---
 **ACADEMIC SCHOLARSHIPS**
 
 - Received full merit-based academic scholarship from Punjab Group of Colleges. (2017-2019)
