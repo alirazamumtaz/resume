@@ -4,7 +4,7 @@
 +92-305-7381431 • [alirazamumtaz@icloud.com](mailto:alirazamumtaz@icloud.com)
 
 • [www.](http://www.linkedin.com/in/alirazamumtaz)[linkedin.com/in/alirazamumtaz](http://www.linkedin.com/in/alirazamumtaz) • Age: 20
-  <img src="https://ibb.co/9YGyNNK">
+  <img src="https://i.ibb.co/9YGyNNK/IMG-7993.jpg" alt="IMG-7993" border="0" />
 </p>
 
 Job Specifications
